@@ -1,5 +1,3 @@
 Git is a comprehensiv version control system.
-Git is free software.s\
-dwadawdaw
-dwaawd
-My stupid bossdwdwdwdwwddw
+Git is free software.
+im your father
